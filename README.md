@@ -7,6 +7,7 @@ sekarang udah gak ngblog, karena ada bebeapa hal yang membuat saya agak ragu ten
 
 ini beberapa screenshot dari theme tersebut, jika ada yang ingin ditanyakan chat me on facebook https://www.facebook.com/depidollar
 
+**size file kurang lebih 94 kb**
 
 **Halaman Depan**
 
